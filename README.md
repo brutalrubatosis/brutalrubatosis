@@ -4,5 +4,5 @@
 <br>*2秒に1人、誰かが亡くなっています。
 <br>haii i'm rexx. and i love project: edens garden !! hehe
 <br>i'm an avid ponytown player, so i'm just using this to link to my ponytown acc!
-<br>ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+<br>ㅤ ׅ♬⋆.˚
 </div>
